@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Papealchat21
 - 👀 I’m interested in videogames development and programming.
-- 🌱 I’m currently studying at Florida universitaria, in Spain.
 - 💞️ I’m looking to collaborate on AAA companies to be involved in the videogames industry as much as posible.
 - 📫 How to reach me: paupenacoba@gmail.com
 
